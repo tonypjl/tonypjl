@@ -23,3 +23,7 @@
 
 
 Tony | 🍳 Gastronomia • 🏋️ Educação Física • 💻 Tech Explorer
+
+
+📩 Onde me encontrar ⬇️
+  ynotfck7@gmail.com
