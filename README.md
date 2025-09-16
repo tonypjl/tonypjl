@@ -1,7 +1,7 @@
 🙋Eai, meu nome é Tony
 
 
-🇺🇸Tenho um nível de inglês intermediário 
+Tenho um nível de inglês intermediário 
 
 
 🌱 Atualmente estudando no terceiro ano do ensino médio  
